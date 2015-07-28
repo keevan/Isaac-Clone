@@ -5,9 +5,10 @@ All images (ideas) thus far are property of their respective owners. I painted t
 
 Maybe this will turn into something enjoyable one day.
 
+Better FPS version gif
+![alt tag](http://i.hizliresim.com/L4p0Yz.gif)
 
+Old version
 ![alt tag](http://puu.sh/h4TIB/80197e5bc2.gif)
 
 
-Better FPS version gif
-![alt tag](http://i.hizliresim.com/L4p0Yz.gif)
